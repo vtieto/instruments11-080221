@@ -1,2 +1,3 @@
 chris potter
 
+Chris Potter was born in Chicago, Illinois, but his family moved to Columbia, South Carolina, where he spent his formative years. Potter showed an early interest in a wide variety of different music and learned several instruments, including the guitar and piano. He realized after hearing Paul Desmond that the saxophone would be the vehicle that would best allow him to express himself musically.[1] He has been quoted by Jazz Times as saying that, "'Music has always been a vehicle for me to investigate the things that are important about life. It’s been a way of figuring out what it is I need to say. Plus, I keep learning new things about it.'"[2]
